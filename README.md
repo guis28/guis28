@@ -6,4 +6,4 @@ meu nome é guis28✨
 - 📫 Como entrar em contato comigo: ... guis28
 - ⚡ Curiosidade: ... Eu Sou Muito Responsável, Ciente Das Coisas, etc.
 
-![](https://tenor.com/pt-BR/view/guapmob-6lime-guapmob-slime-welcome-welcome-tom-jerry-gif-6097863215650853297)
+![](https://tenor.com/pt-BR/view/hsndshake-jerry-jerry-shakes-hands-jerry-and-bird-gif-22358949)
